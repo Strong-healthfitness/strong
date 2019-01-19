@@ -1,0 +1,2 @@
+# strong
+entrenamiento deportivo_ indumentaria deportiva_celulares-smartfone_accesorios 
